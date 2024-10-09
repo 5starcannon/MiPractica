@@ -10,4 +10,3 @@ Muchas gracias por vuestra atención.
 Atentamente,
 
 Joan Puig
-
